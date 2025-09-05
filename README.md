@@ -64,7 +64,7 @@ _Add 2–4 projects max. Each row should fit on one screen._
 ## 🤝 Let’s Connect
 > **“Great products are built by great people working together.”**
 
-- 💌 Email: ⟪email@example.com⟫  
+- 💌 Email: ⟪chin23377@gmail.com⟫  
 - 📝 Schedule a coffee chat: ⟪Calendly link⟫  
 - 🐦 DM me on [X/Twitter](⟪url⟫)
 
