@@ -66,7 +66,7 @@ _Add 2–4 projects max. Each row should fit on one screen._
 
 - 💌 Email: ⟪chin23377@gmail.com⟫  
 - 📱 **Phone:** +668-412-7633 
-- 🐦 DM me on [X/Twitter](⟪url⟫)
+- 📍 **Address:** 602 Pimuk Village, Chiang Mai 
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=⟪USERNAME⟫&style=flat-square" alt="profile views"/>
