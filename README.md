@@ -65,7 +65,7 @@ _Add 2–4 projects max. Each row should fit on one screen._
 > **“Great products are built by great people working together.”**
 
 - 💌 Email: ⟪chin23377@gmail.com⟫  
-- 📝 Schedule a coffee chat: ⟪Calendly link⟫  
+- 📱 **Phone:** +668-412-7633 
 - 🐦 DM me on [X/Twitter](⟪url⟫)
 
 <p align="center">
