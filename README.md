@@ -65,7 +65,7 @@ _Add 2–4 projects max. Each row should fit on one screen._
 > **“Great products are built by great people working together.”**
 
 - 💌 Email: ⟪chin23377@gmail.com⟫  
-- 📱 **Phone:** +668-412-7633 
+- 📱 **Phone:** +6684-612-7633 
 - 📍 **Address:** 602 Pimuk Village, Chiang Mai 
 
 <p align="center">
